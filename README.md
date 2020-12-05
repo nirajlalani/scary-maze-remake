@@ -14,3 +14,7 @@ Art with Sonic's reaction used in thumbnail: https://www.deviantart.com/shadamy0
 Halloween special (just like the original one!)!
 
 ​Note: I uploaded this game into Game Jolt during Halloween, just to tell you!
+
+Game Jolt Link: https://gamejolt.com/games/scarymazeremake/550394
+
+Itch.io Link: https://emerald-lime.itch.io/scary-maze-remake
