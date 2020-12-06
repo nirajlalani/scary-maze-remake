@@ -18,3 +18,5 @@ Halloween special (just like the original one!)!
 Game Jolt Link: https://gamejolt.com/games/scarymazeremake/550394
 
 Itch.io Link: https://emerald-lime.itch.io/scary-maze-remake
+
+Newgrounds Link: https://www.newgrounds.com/portal/view/773620?updated=1607236980
